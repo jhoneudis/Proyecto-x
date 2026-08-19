@@ -1,2 +1,2 @@
 # Proyecto-x
-para hacer mariqueras
+tetas
